@@ -1,0 +1,1 @@
+When I turned my attention to the stage I was delighted to behold an abundance of cats delicately tasting jelly-filled donuts.
